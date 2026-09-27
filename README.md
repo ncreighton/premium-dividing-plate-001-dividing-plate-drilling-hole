@@ -1,0 +1,2 @@
+# premium-dividing-plate-001-dividing-plate-drilling-hole
+Tired of misaligned holes and wasted materials when crafting circular patterns on your dividing plate? This Notion workshop eliminates guesswork, turning your dividing plate into a precision tool for perfect hole circles every time.  The Dividing Plate Drilling &amp; Hole Circle Craft Workshop is the first Notion template designed specifically for craf
